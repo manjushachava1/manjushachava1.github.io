@@ -1,2 +1,2 @@
-# manjushachava1.github.io
+# Manjusha's Personal Website
 Personal Website
